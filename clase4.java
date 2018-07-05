@@ -1,1 +1,1 @@
-conflicto
+Ya no hay conflicto
